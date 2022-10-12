@@ -1,0 +1,2 @@
+# lucifer
+Optizasyon gibi d
